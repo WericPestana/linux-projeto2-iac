@@ -1,1 +1,0 @@
-Créditos: Professor Denílson Bonatti 
